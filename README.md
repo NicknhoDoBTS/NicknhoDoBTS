@@ -1,16 +1,16 @@
-### Hi there 👋
+### Boas Vindas ao meu perfeil 🌙
+ 
+ Meu nome e Nickolas♒
+ 
+- Tenho 16 anos
+- Estudo no segundo ano do ensino medio na PEI
+- e gosto de violão🎵, skate🛹 e basquete 🏀
 
-<!--
-**NicknhoDoBTS/NicknhoDoBTS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Mais informações sobre mim 🎱
 
-Here are some ideas to get you started:
+  00001081200789sp@al.educacao.sp.gov.br
+  
+  @Nk__Santos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+  ![](https://media1.tenor.com/m/PGEpDsrsYcIAAAAC/luffy-one-piece-anime.gif)
